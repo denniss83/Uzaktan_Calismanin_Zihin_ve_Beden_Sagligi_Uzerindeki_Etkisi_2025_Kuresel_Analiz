@@ -1,0 +1,1 @@
+# Uzaktan_Calismanin_Zihin_ve_Beden_Sagligi_Uzerindeki_Etkisi_2025_K-resel_Analiz
